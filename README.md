@@ -1,0 +1,2 @@
+- 👋 Hi, I’m PotatoEmperor
+- ⚡ Fun fact: 🖕
